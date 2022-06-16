@@ -1,0 +1,1 @@
+// i know i need to commit alot more but i just got lost in it. I understand this stuff but i feel like im in a blender sometimes with it. 
